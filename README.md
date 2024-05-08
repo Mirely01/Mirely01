@@ -11,5 +11,5 @@ Meu nome é Mirely Cristine
 mirelycristine01@gmail.com
 
 
-![](https://tenor.com/pt-BR/view/barbie-lifeinthedreamhouse-gif-18493744)
+![](https://media.tenor.com/q2dF2IwKsxQAAAAM/barbie-lifeinthedreamhouse.gif)
 
