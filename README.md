@@ -7,3 +7,5 @@ Meu nome é Mirely Cristine
 -  Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 -  ### Você pode entrar em contato comigo📪
+
+mirelycristine01@gmail.com
