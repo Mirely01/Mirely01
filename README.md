@@ -2,7 +2,7 @@
 
 Meu nome é Mirely Cristine
 
-- Estou estudando na Alura
+- Estou estudando na [Alura](https://www.alura.com.br)
 -  Estou me desenvolvendo na línguagem JavaScript
 -  Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
