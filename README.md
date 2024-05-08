@@ -9,3 +9,7 @@ Meu nome é Mirely Cristine
 -  ### Você pode entrar em contato comigo📪
 
 mirelycristine01@gmail.com
+
+
+![](https://tenor.com/pt-BR/view/barbie-lifeinthedreamhouse-gif-18493744)
+
